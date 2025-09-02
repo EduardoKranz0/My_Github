@@ -1,0 +1,1 @@
+# resolvendo conflitos kkk estou de boa 
